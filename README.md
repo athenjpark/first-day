@@ -31,3 +31,5 @@
 > *Everything* is going according to **plan.**
 
 ### I like chocolate.
+
+#### Twix, Ghiradelli, Kit Kat, and Reese's Cups are S tier chocolates.
